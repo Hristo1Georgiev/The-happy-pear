@@ -1,13 +1,13 @@
-##Ingredients##
+**_Ingredients_**
 
-**Base Layer** 
+_Base Layer_ 
 
 280 g ground almond or almond flour 
 100 g agave or clear date syrup 
 100 g coconut oil 
 Pinch salt 
 
-**Caramel Filling**
+_Caramel Filling_
 
 300 g pitted dates 
 100 g almond or cashew or peanut butter 
@@ -17,9 +17,9 @@ Pinch salt
  1 teaspoon Vanilla extract Chocolate Topping 
  300 g dark chocolate
 
-##INSTRUCTIONS##
+**_INSTRUCTIONS_**
 
-**Base Layer**
+_Base Layer_
 Line a brownie pan or baking tray that is approx 20cm x 30cm with baking parchment. In a saucepan melt the coconut oil. In a large bowl mix together the ground almond with the coconut oil and agave syrup/ clear date syrup. Pour into the lined baking tray and compact with a spoon so that its level and compressed. Put in the freezer to set for 20 mins while you make the caramel and melt the chocolate.
 **Caramel Layer:**
 In a food processor add all ingredients for the caramel layer and blend until super smooth and caramel-like, this may take up to 5 minutes depending on your food processor and you may need to add a little more water if it is a bit clumpy and not blending!
@@ -28,4 +28,5 @@ Chocolate
 Melt your chocolate by using a water bath or bain marie. Once melted pour over the top of the caramel layer.
 Leave to cool and set
 Once cold cut to your desired size
+
 _Enjoy these are so good!_
